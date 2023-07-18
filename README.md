@@ -26,4 +26,14 @@ En mi trayectoria en Henry, he desarrollado habilidades y experiencia en diversa
 
 Mi objetivo laboral actual es encontrar una oportunidad en la industria del desarrollo web, ya sea en forma de pasantía o puesto de trabajo. Estoy emocionado por seguir creciendo profesionalmente y aplicar las habilidades técnicas que he adquirido en proyectos reales. Busco colaborar con equipos talentosos y enfrentar desafíos que me permitan seguir aprendiendo y mejorando mis habilidades.
 
-Con habilidades técnicas sólidas, capacidad para trabajar en equipo y adaptabilidad a nuevos entornos, destaco por mi pasión por aprender de manera continua. Estoy comprometido/a en brindar soluciones de calidad que superen las expectativas de los clientes y usuarios. Si estás interesado/a en conectar, colaborar o explorar posibles oportunidades, estaré encantado/a de entablar una conversación contigo. ¡No dudes en contactarme! Estoy abierto/a a nuevas conexiones y emocionado/a por las oportunidades que la industria del desarrollo web tiene para ofrecer.
+Con habilidades técnicas sólidas, capacidad para trabajar en equipo y adaptabilidad a nuevos entornos, destaco por mi pasión por aprender de manera continua. Estoy comprometido/a en brindar soluciones de calidad que superen las expectativas de los clientes y usuarios. 
+
+**No dudes en contactarme**
+
+Si estás interesado/a en conectar, colaborar o explorar posibles oportunidades, estaré encantado/a de entablar una conversación contigo. ¡No dudes en contactarme! Estoy abierto/a a nuevas conexiones y emocionado/a por las oportunidades que la industria del desarrollo web tiene para ofrecer.
+
+**correo:** barrylamb530@gmail.com
+
+**linkedin**: www.linkedin.com/in/kevin-axel-lambarry-hernández-3ab4b2261
+
+
